@@ -1,5 +1,5 @@
+![Capture](https://github.com/h672633/dat110-project3-dht-group67/assets/111865085/ffcd5f64-9749-4f12-b2e2-a1791d13ed3c)
 
-![](C:\Users\User\Desktop\Capture.PNG)
 
 ### Project 3 - Weeks 12 to 15: 18/03 - 14/04
 
